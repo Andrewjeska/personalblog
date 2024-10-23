@@ -84,7 +84,7 @@ After Da Lat we descended to the coastal resort city of Nha Trang, where Russian
 
 When riding a motorcycle, it’s important to have an healthy fear of what can happen, and what does happen, to riders almost every day.
 
-Nha Trang was the last stop for Max and Ben. We said our goodbyes, and I told them I would see them in Germany next March (which I did, and then Covid-19 happened while I was there). I ride on with my new friend Hazel, also a German, to the next city: Qui Nhon.
+Nha Trang was the last stop for Max and Ben. We said our goodbyes, and I told them I would see them in Germany next March (which I did, and then Covid-19 happened while I was there). I rode on with my new friend Hazel, also a German, to the next city: Qui Nhon.
 
 ### Qui Nhon
 
@@ -107,7 +107,7 @@ Against all odds, the bar does actually close at 2am. Anyone who is left goes do
 
 ### The second time I almost died
 
-Ben and Max made a name for me, “Predicament Michael,” because it seemed like at least once an hour I would be in some minor, yet aggravating situation. I wish I could say that it weren’t true. One that comes to mind was at Cat Tien, when the shower went out during a power outage. I was, of course, caught mid-lather.
+Ben and Max made a name for me, “Predicament Michael,” because it seemed like at least once an hour I would be in some minor, yet aggravating situation. I wish I could say that it weren’t true. One instance that comes to mind was at Cat Tien, when the shower went out during a power outage. I was, of course, caught mid-lather.
 
 From Qui Nhon I set forth west into the mountains. I took the DT670, seeing villages, breathtaking vistas, and kind people who wanted only to say hello and practice a bit of English. That night I slept in Kon Tum, deep in the southern Vietnamese highlands.
 
@@ -126,7 +126,7 @@ I am eternally grateful for all the help I got from locals along my travels, and
 
 The next day, taking my time, I head down the mountains to Hoi An. Hoi An is on every travel blog about Vietnam you have ever read. It’s touristy, but it is simply the most charming city in Vietnam. It is known for its excellent tailors. I have 5 shirts made from quality fabrics, which I had to negotiate down from $170 to $130. While it’s not cheap, and very touristy, you cannot go to Hoi An without getting something tailored. I can attest that people notice when you wear clothes that are fitted just for you.
 
-After Hoi An, it was the famous Hai Van Pass, made popular by Top Gear, and then onto Hue. Hue is the ancient capital city of Vietnam, and it is known for the spicy noodle soup Bun Bo Hue. From Hue, I made an early start for Khe Sanh, the beginning one of the most breathtaking drives of this excursion.
+After Hoi An, it was the famous Hai Van Pass, made popular by Top Gear, and then onto Hue. Hue is the ancient capital city of Vietnam, and it is known for the spicy noodle soup known as Bun Bo Hue. From Hue, I made an early start for Khe Sanh, the beginning one of the most breathtaking drives of this excursion.
 
 <figure>
   <img src="/assets/blog/shirts.webp" alt="Tailored Shirts">
@@ -170,7 +170,7 @@ Around the Chinese border I popped my tire. Riding to the shop with a flat tire 
 
 ### The time I was almost stranded
 
-I spent a night in the village of Na Tri, at a lovely homestay called Tho Homestay, where you essentially sleep as rural Vietnamese do, on hard beds in a wooden house that is kept off the ground with wooden beams. The next day I wanted to make the long drive to Sapa, but google maps recommended a route for me that was 15 minutes shorter. That seemed a bit odd as the road it showed me didn’t have a number on it, but maybe it knew something that I didn’t.
+I spent a night in the village of Na Tri, at a lovely homestay called Tho Homestay, where you essentially sleep as rural Vietnamese do, on hard beds in a wooden house that is kept off the ground with wooden beams. The next day I wanted to make the long drive to Sapa, but Maps.Me recommended a route for me that was 15 minutes shorter. That seemed a bit odd as the road it showed me didn’t have a number on it, but maybe it knew something that I didn’t.
 
 This assumption turned out to be extremely wrong. I took the road and it was extremely bumpy, thinking it would improve and become paved after a short while. The road was literally all bumps and rocks, with the occasional stream which I forded on the bike by revving the engine and holding on. I notice a strange sound coming from the bike, so I stop at what appears to be a small restaurant, and a man there adds oil to my chain. The sound stops, and I continue on a few kilometers. Still, something is off about the bike. I smell smoke. I stop at another house, and I tell the man inside my bike has a problem. He opens up the chamber to check the oil, and only smoke comes out. There was no oil in the engine as far as he could tell. I wait an hour for his son to bike to the next town over and buy some oil. While we are waiting, we managed to string together a conversation using google translate. He shows me family photos from Ha Long Bay, and it turns out his name is Tom, which is also my father’s name. His son comes back and he changes my oil for 150,000VND, and I am grateful. I’m on my way. Yet, the same problems arose maybe 500 meters down the road. I check the oil chamber again, and it is still smoking! I call the bike company to ask what to do, and they recommended driving up the road until I see a man with a truck and to ask for a lift back by calling them back and allowing them to translate. This answer did not seem promising, but lo and behold, not one kilometer up the road and I see a truck. The rental company explains the situation over the phone and the man offers to drive me and my bike back later this evening. He invites me to stay at his home, which is another traditional Vietnamese house. Evening comes, and him and his friends attach the bike onto the truck and keep it stable with ropes, and we make the extremely bumpy ride back to Na Tri. I learned that evening that I had gone only 15 kilometers that day, and it took me about 3 hours to do even that. I go back to the homestay, and Tho lets me stay another night, but there is a power outage, so I try to get some sleep without the luxury of a small fan.
 
